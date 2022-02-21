@@ -1,1 +1,0 @@
-# WA_Bilder_einer_Ausstellung_v.1.1
